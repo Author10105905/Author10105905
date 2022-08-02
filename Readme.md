@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Author10105905
-- 👀 I'm interested in the five highest principal's know to hue~mans [Love; Truth; Peace; Freedom & Justice as I slowly counter clockwise rotation to the sixth highest principal's know to hue~man's
+- 👀 I'm interested in the five highest principal's know to hue~mans Love; Truth; Peace; Freedom & Justice as I slowly counter clockwise rotation to the sixth highest principal's know to hue~man's
 Love; Life; Loyalty; knowledge; Wisdom; Understanding; slowly turning counter clockwise rotation to the seventh highest principal known to hue~man's <Unity>].....
 - 🌱 I’m currently learning Government/ Enterprise & Finance....
 - 💞️ I’m looking to collaborate with other Nations to help manage my empire; by getting a team~
